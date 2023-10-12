@@ -77,7 +77,7 @@ I highly recommend that you review this [brief post about writing professional e
 
 You are expected to take personal responsibility for your own learning. This includes acknowledging when your performance does not match your goals and  doing something about it. Everyone can benefit from some expert guidance on time  management, note taking, and exam preparation. I encourage you to consider visiting [https://tltc.umd.edu/learning-assistance](https://tltc.umd.edu/learning-assistance)<span style="text-decoration:underline;"> </span>to schedule an appointment with an academic coach. Sharpen your communication skills (and improve your grade) by visiting [https://gradschool.umd.edu/graduate-school-writing-center](https://gradschool.umd.edu/graduate-school-writing-center)<span style="text-decoration:underline;"> </span>and schedule an appointment with the Graduate School Writing  Center. Finally, if ever you need someone to talk to, visit [http://www.counseling.umd.edu](http://www.counseling.umd.edu)<span style="text-decoration:underline;"> </span>to speak  with a counselor.  
 
-_All of these services are free because you have already paid for it, and everyone needs help… you just gotta ask!  _
+_All of these services are free because you have already paid for it, and everyone needs help… you just gotta ask!_
 
 
 ### Names/Pronouns and Self-Identifications:
