@@ -2,7 +2,7 @@
 
 **Pronouns:** she/her/hers
 
-**Email:** [carowp@umd.edu](mailto:carowp@umd.edu)_ (put INST631 in the title)_
+**Email:** [carowp@umd.edu](mailto:carowp@umd.edu) _(put INST631 in the title)_
 
 **Office Hours:** Sign up for virtual office hours [here](https://calendar.app.google/A5KNkSygn4CLMisU9) (generally offered Mondays & Wednesdays); in-person by request.
 
