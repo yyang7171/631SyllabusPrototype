@@ -133,7 +133,7 @@ Weekly Reading Response
 <p>
 [no WATCH or PROTOTYPE this week]
 <p>
-<strong>DUE BY CLASS VIRTUALLY <a href="https://forms.gle/xtqzg7vPQ6w6PT6d8">HERE</a> <del>AT CLASS</del>: </strong>CHI paper review
+<strong>DUE BY CLASS VIRTUALLY <a href="https://forms.gle/xtqzg7vPQ6w6PT6d8">HERE</a>: </strong>CHI paper review
    </td>
    <td><strong><em>Cognition and Social Interaction</em></strong>
    </td>
