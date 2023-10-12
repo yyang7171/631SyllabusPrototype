@@ -21,7 +21,7 @@ I am happy to discuss any of your grades with you, and if I have made a mistake,
   <tr>
    <td><strong>Weekly Reading Responses (and Prototyping)</strong>
    </td>
-   <td><del>12 </del>11
+   <td>11
    </td>
    <td>10
    </td>
